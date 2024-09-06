@@ -1,0 +1,1 @@
+# cuadro-tipos-lider
